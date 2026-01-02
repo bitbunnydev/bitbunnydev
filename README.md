@@ -1,5 +1,5 @@
 # 💫 About Me:
-20+2 🔞<br>Developer in progress 🚀<br>Every line matters 🧑‍💻 <br>Green chaser 📗
+20+3 🔞<br>Developer in progress 🚀<br>Every line matters 🧑‍💻 <br>Green chaser 📗
 
 
 ## 🌐 Socials:
